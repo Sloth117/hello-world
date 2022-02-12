@@ -1,2 +1,2 @@
 # hello-world
-It's called hello world idk what else you were expecting
+uhh wassup? welcome to my file or whatever, you know how it be
