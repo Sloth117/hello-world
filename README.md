@@ -1,3 +1,5 @@
 # hello-world
-uhh wassup? welcome to my file or whatever, you know how it be
-I like to read and write random stuff
+uhhh wassup?
+I go by sloth
+I like to play video games
+I'm learning how to code so, yeah
